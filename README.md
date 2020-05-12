@@ -1,4 +1,4 @@
-GitHub Pages Link: https://chrisducharme1793.github.io/Project_01/
+GitHub Pages Link: https://kcig88.github.io/BREWQUERY/
 
 Homework instructions:
 
